@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-I'm Rubiga ,an Engineering student passionate about AI and Technology
+I'm Rubiga ,an engineering student passionate about AI and technology
